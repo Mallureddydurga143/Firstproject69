@@ -1,2 +1,2 @@
 # Firstproject69
-learning
+learning and got idea about gihub 
